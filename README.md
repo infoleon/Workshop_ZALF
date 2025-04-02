@@ -14,6 +14,6 @@ Participants will gain the ability to determine subsurface soil characteristics 
 * Date: July 25th, 2025.
 * Location: ZALF, Hause 45, Eberswalde Str. 84, 15374 Müncheberg.
 * Fee: 10.00 €
-* URL for registration: https://docs.google.com/forms/d/e/1FAIpQLSdUC9BjJixLCMKIvy_qlbRHyx92A0lSA55XF-YGdj9gRxrioQ/viewform?usp=dialog
+* URL for registration: https://bit.ly/42mBpea
 
 
